@@ -5,6 +5,6 @@
 🌎 Gaúcha no DF 
 🔎 Em busca de estágios
 
-### Encontre-me aqui:
+## Chama aqui:
 ✉️ edeamici_88@hotmail.com
 
