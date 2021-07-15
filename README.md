@@ -1,4 +1,4 @@
-### Oii!👋 Sou a Emili!
+### Oii!👋 Aqui é a Emili!
 
 💻 Estudante 🌎 Gaúcha no DF 🔎 Em busca de estágios
 
